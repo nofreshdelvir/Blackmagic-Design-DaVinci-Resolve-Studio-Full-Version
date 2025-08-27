@@ -1,0 +1,1 @@
+# Blackmagic-Design-DaVinci-Resolve-Studio-Full-Version
